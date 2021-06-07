@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cuiddy
-- 👀 I’m interested in cryptocurrency and forex trading, i love speaking to people.
+- 👀 I’m interested in cryptocurrency and forex trading and i love speaking to people.
 - 🌱 I’m currently learning how to trade cryptos and also data analysis 
 - 💞️ I’m looking to collaborate on forex trading and data analysis 
 - 📫 How to reach me via my cell : 09036851975 or via mail : Emmanuelgeorge1997@gmail.com 
